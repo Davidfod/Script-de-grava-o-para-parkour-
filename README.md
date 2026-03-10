@@ -1,1 +1,0 @@
-# Script-de-grava-o-para-parkour-
